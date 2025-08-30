@@ -4,6 +4,7 @@
 
 Surviving Arrakis is no easy task. Between massive sandworms, rival factions, and the battle for spice, every advantage matters. That’s where **Dune: Awakening cheats, trainers, ESP tools, and aimbots** come in. This guide dives deep into how players are enhancing gameplay, whether it’s spotting enemies through walls, locking headshots with precision, or managing resources with cheat menus.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://dune-awakening-cheats.github.io/.github/)
 ---
 
 ## Product Description
